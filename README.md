@@ -1,0 +1,1 @@
+# Gesti-n-de-paltaformas-de-anal-tica
